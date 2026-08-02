@@ -4,4 +4,4 @@
 <br>
 <p> some of my warriors ocs i'm commonly seen in are rosecall and finchpaw/finchhiss! don't be afraid to say hi, i don't bite. </p>
 <br>
-<img width="99" height="56" alt="d1v3d38-72c02ad3-0f17-402e-b3cc-ee07b7faee90" src="https://github.com/user-attachments/assets/9a8e6294-0c9f-4538-9d1a-b55fa2d34643" />
+<img width="99" height="56" alt="d1v3d38-72c02ad3-0f17-402e-b3cc-ee07b7faee90" src="https://github.com/user-attachments/assets/9a8e6294-0c9f-4538-9d1a-b55fa2d34643" /> <img width="99" height="56" alt="d42dj7t-22950dd9-b188-4534-a05a-a33cfedf6db6" src="https://github.com/user-attachments/assets/87cc504d-f07c-441d-b1be-8856938d613d" /> <img width="99" height="56" alt="d486xjy-c8f32aae-f421-4dc0-bad6-5840c03bb966" src="https://github.com/user-attachments/assets/492c618c-e72d-4cb6-9cc2-ca5bd6f5ff0b" /> <img width="99" height="56" alt="d45gi9q-d0b207f1-fb40-47a5-83fa-6d39b22659ed" src="https://github.com/user-attachments/assets/c3ea16ee-07d9-472b-92eb-5f0266d2d030" /> <img width="99" height="56" alt="d440k89-225a911d-8eb3-417a-a568-fdbd7ce19d31" src="https://github.com/user-attachments/assets/8dddf062-5c47-47cc-9d15-cd33abeee290" /> 
