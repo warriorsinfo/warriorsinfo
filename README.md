@@ -3,3 +3,5 @@
 <p> if you have any questions about my rentry and the information provided, question about the series, want to ask me something, tell me if a link isn't working, or give me something to add to the rentry, send me a gimmick in my strawpage! i will answer them to the best of my ability :3 drawings are also very welcome! </p>
 <br>
 <p> some of my warriors ocs i'm commonly seen in are rosecall and finchpaw/finchhiss! don't be afraid to say hi, i don't bite. </p>
+<br>
+<img width="99" height="56" alt="d1v3d38-72c02ad3-0f17-402e-b3cc-ee07b7faee90" src="https://github.com/user-attachments/assets/9a8e6294-0c9f-4538-9d1a-b55fa2d34643" />
